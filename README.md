@@ -1,1 +1,1 @@
-# rsschool-cv
+https://thevventus.github.io/rsschool-cv/cv
